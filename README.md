@@ -1,4 +1,4 @@
-## I'm Chanuka 👋
+## I'm Chanuka Dilshan👋
 
 🎓 **University:** NSBM  
 📚 **Degree:** BSc (Hons) in Computer Networks
